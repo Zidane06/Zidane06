@@ -1,4 +1,4 @@
-### UAS KECERDASAN KOMPUTASIONAL AFDHOL ZIDANE TEKNIK INFORMATIKA 2020B👋
+### UAS KECERDASAN KOMPUTASIONAL23420020 AFDHOL ZIDANE TEKNIK INFORMATIKA 2020B👋
 
 <!--
 **Zidane06/Zidane06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
